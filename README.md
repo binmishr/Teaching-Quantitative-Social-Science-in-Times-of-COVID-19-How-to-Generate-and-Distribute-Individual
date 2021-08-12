@@ -1,0 +1,1 @@
+# Teaching-Quantitative-Social-Science-in-Times-of-COVID-19-How-to-Generate-and-Distribute-Individual
